@@ -18,8 +18,8 @@
 
 📌 Projects & Work
 
-🔹 Project Name 1 – A brief description of your project
-🔹 Project Name 2 – Another impressive project
+🔹 Project 1 – A brief description of my project is coming shortly
+🔹 Project – Other impressive projects will soon be unveiled right here, for your eyes only.
 
 📫 Connect with Me
 
